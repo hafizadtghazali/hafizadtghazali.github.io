@@ -40,3 +40,8 @@ Web designer
 -----
 - in MSD Intelligence June 2012–now
 Working on various projects and site redesign.
+
+REFEREE
+-----
+Lim Kok Yoong
+Lecturer and Head of Digital Media, Multimedia University http://cargocollective.com/limkokyoong
